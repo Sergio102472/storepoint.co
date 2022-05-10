@@ -1,0 +1,1 @@
+# storepoint.co
